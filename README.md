@@ -1,2 +1,2 @@
 # myrepositore
-< sup bitches>
+my name is aubrey and i like to draw
